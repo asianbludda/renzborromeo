@@ -1,2 +1,0 @@
-# renzborromeo
-FINAL OUTPUT PROJECT 
